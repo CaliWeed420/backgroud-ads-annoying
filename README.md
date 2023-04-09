@@ -16,3 +16,4 @@ This is for the people who dont care about the ads still playing in the backgrou
 and are thankful that there browsing experiance isnt interupted by greedy ads.
 
 
+THIS WILL break your browser use for the lolz.
